@@ -37,5 +37,5 @@
 ## 🤝 Let’s Connect
 
 ✨ Always open to **new opportunities** and **collaborations**  
-💬 Feel free to reach out at: 🔗[LinkedIn](https://www.linkedin.com/in/meliha-kasapovic/)
+💬 Feel free to reach out on [LinkedIn](https://www.linkedin.com/in/meliha-kasapovic/)
 
